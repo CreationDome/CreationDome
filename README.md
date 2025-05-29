@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @CreationDome
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning Coding
+- 💞️ I’m looking to collaborate on Nothing
+- 📫 How to reach me CreationDome@outlook.com
+- 😄 Pronouns: He/Him/They/Them
+- ⚡ Fun fact: I am human
